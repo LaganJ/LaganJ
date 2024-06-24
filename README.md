@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @LaganJ
-- 👀 I’m interested in simplifying fashion
+- 👀 I’m interested in simplifying personal fashion
 - 🌱 I’m currently learning to let go
 - 💞️ I’m looking to collaborate on making world a better place
 - 📫 +91-7008267767
